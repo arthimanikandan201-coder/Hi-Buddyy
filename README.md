@@ -152,4 +152,10 @@ naa unkitta pesanum oru 5 nemusam
 
 oru 5 nemusam conversation ella thayum maathum apdingra nambikaila thaa naa evlo porumaya irrunthen 
 
-evlo nala unna yaaro illa yetho oru vishyam thaduthu irrunthurukalam. aatha intha oru thadava nee ya neemattum oru mudivu edu. 
+evlo nala unna yaaro illa yetho oru vishyam thaduthu irrunthurukalam. aatha intha oru thadava nee ya. neemattum oru mudivu yedu. 
+
+onne onnu mattum therinjuko Naa unna yaarkita irrunthum perikanum nu nenaikala. en sidela nadanthathu,nadakurathu ethuvum thriyaatha varaikum, un sidela irrunthu naa oru enna soldrathu (oru red flag🚩, toxic illa ect...) va tha theriyuven.
+
+so evotha, unkita irrunthu ennakaga oru 5min.
+yosi. manasu soldratha sai. mudiva nee yedu 
+
