@@ -151,3 +151,5 @@ naa unkitta pesanum oru 5 nemusam
 
 
 oru 5 nemusam conversation ella thayum maathum apdingra nambikaila thaa naa evlo porumaya irrunthen 
+
+evlo nala unna yaaro illa yetho oru vishyam thaduthu irrunthurukalam. aatha intha oru thadava nee ya neemattum oru mudivu edu. 
