@@ -145,3 +145,6 @@ arthi
 
 
 naa nalaki 1:30ku college la irrunthu kelambi kerala vara competition kaga pooren ennala 3 nalaki college vara mudiyaathu 
+
+
+naa unkitta pesanum oru 5 nemusam
