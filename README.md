@@ -148,3 +148,6 @@ naa nalaki 1:30ku college la irrunthu kelambi kerala vara competition kaga poore
 
 
 naa unkitta pesanum oru 5 nemusam
+
+
+oru 5 nemusam conversation ella thayum maathum apdingra nambikaila thaa naa evlo porumaya irrunthen 
